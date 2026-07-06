@@ -31,5 +31,5 @@ ________________________________________________________________________________
 • 🍄 I love being at the nature.
 • ☕ I'm a coffee person.
 • 🧗 I practice climbing.
-• I'm passionate about learning new things from tech to DIY things.
+• ⛏️ I'm passionate about learning new things from tech to DIY things.
 
